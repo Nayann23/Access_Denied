@@ -1,12 +1,22 @@
 🚀 Generative AI Projects – Access Restricted
 🔒 Why No Direct Downloads?
-To ensure my work is shared responsibly and understood in the right context, direct downloads are restricted. Instead, let’s connect so I can personally share the details with you.
+My Generative AI projects involve advanced models, research, and proprietary work. To ensure they are shared responsibly and in the right context, direct downloads are not available.
+
+I want to prevent:
+
+❌ Misuse or misinterpretation of the work
+❌ Unauthorized redistribution
+❌ Lack of proper guidance on implementation
+Instead, let’s discuss your interest so I can share details appropriately!
+
+⚠️ Who Can Get Access?
+✅ Genuine collaborators & researchers
+✅ Industry professionals & developers
+✅ Students & learners with a clear use case
+If you fall into one of these categories, feel free to reach out!
 
 🤝 Want Access? Let’s Connect!
-I’d love to discuss your interest in my projects! Just reach out, and I’ll be happy to share more information.
-
-📬 How to Contact Me:
-
+I’d love to hear why you’re interested in my work. Let’s chat, and if it aligns, I’ll be happy to share access!
 
 Looking forward to connecting! 🚀
 👉 Click Below to Get in Touch! 👇</br>
